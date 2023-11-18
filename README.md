@@ -1,6 +1,6 @@
 - Hi, I’m @Uma-Y.
 - I’m seeking internships.
-- I’m currently learning B.Tech in Computer Science Engineering at MGIT.
+- I’m finished B.Tech in Computer Science Engineering at MGIT.
 - How to reach me: Email - umayallanki@gmail.com  LinkedIn - https://www.linkedin.com/in/yallanki-uma-8a6798205/
 
 <!---
